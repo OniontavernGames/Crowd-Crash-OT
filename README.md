@@ -10,7 +10,7 @@ For any bugs or issues kindly submit a report at oniontavern@gmail.com or direct
 Any other enquirers can also be submitted at the above email address.
 
 Privacy Policy
-Mario Cepoi built the Crowd Rush app as a Free app. This SERVICE is provided by Mario Cepoi at no cost and is intended for use as is.
+Mario Cepoi built the Crowd Rush OT app as a Free app. This SERVICE is provided by Mario Cepoi at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
