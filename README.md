@@ -1,9 +1,6 @@
 # Crowd-Crash-OT
 IOS Support Page
 
-IOS Support Page
-
-
 Thank you very much for play Crowd Crash OT.
 
 
